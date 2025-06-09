@@ -1,1 +1,0 @@
-# ugurasilturk.github.io
